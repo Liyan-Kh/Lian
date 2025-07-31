@@ -1,2 +1,2 @@
-# Lian Khosravi
-CE student
+# Liana Khosravi
+CE Student at University of Isfahan
